@@ -1,1 +1,1 @@
-https://blog.damavis.com/elasticidad-precio-de-la-demanda/
+https://blog.damavis.com/elasticidad-precio-de-la-demanda/ 
